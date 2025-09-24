@@ -1,1 +1,1 @@
-# dinggenqi.github.io
+# [dinggenqi.github.io](https://hoo.be/dytt6)
